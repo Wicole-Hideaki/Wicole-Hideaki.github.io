@@ -1,0 +1,1 @@
+# Wicole-Hideaki.github.io
